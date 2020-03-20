@@ -1,2 +1,2 @@
 # Project_BADID
-init
+1주차 : https://youtu.be/9yURTTK78ro
