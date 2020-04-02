@@ -1,4 +1,6 @@
 # Project_BADID
-1주차 : https://youtu.be/9yURTTK78ro
+1일차 : https://youtu.be/9yURTTK78ro
 
-2주차 : https://www.youtube.com/watch?v=MjPC2FrOhro
+2일차 : https://www.youtube.com/watch?v=MjPC2FrOhro
+
+3일차 : https://youtu.be/xf2YS8Kjl5c
