@@ -3,4 +3,4 @@
 
 2일차 : https://www.youtube.com/watch?v=MjPC2FrOhro
 
-3일차 : https://youtu.be/xf2YS8Kjl5c
+3일차 : https://youtu.be/VgpEjG7zgyI
