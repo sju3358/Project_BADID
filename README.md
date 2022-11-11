@@ -7,5 +7,6 @@
 4일차 : https://youtu.be/GhkIEaz-PxA  
 5일차 : https://youtu.be/mGEmT3adLZ0  
 
-[졸업프로젝트 (창의경진대회)]
-
+[졸업프로젝트]
+2020 충남대학교 창의경진대회 우수상 수상  
+https://youtu.be/rAbJJSV20HI
